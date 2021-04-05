@@ -34,3 +34,5 @@ Dedicated Server Hosting is a web hosting where you got the physical dedicated s
 
 ## What is Reseller Hosting?
 Reseller Hosting is the best web hosting service for those users who wants to earn money by selling the web hosting to other users. It is one of the best option to make money with web hosting. 
+
+> You can get all these web hosting services at a very high discount on [hosting black friday deals](https://hostingblackfridaydeals.com/). Learn more on [WikiPedia](https://en.wikipedia.org/wiki/Web_hosting_service)
